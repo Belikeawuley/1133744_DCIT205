@@ -1,3 +1,7 @@
+![Web capture_28-11-2023_234528_127 0 0 1](https://github.com/Belikeawuley/1133744_DCIT205/assets/151824430/668baf10-85b5-42b2-86e3-26eb68fd7f26)
+![Web capture_28-11-2023_234640_127 0 0 1](https://github.com/Belikeawuley/1133744_DCIT205/assets/151824430/dffa0fe2-4090-42ff-9fa8-198a9c2e0f3b)
+![Web capture_28-11-2023_23476_127 0 0 1](https://github.com/Belikeawuley/1133744_DCIT205/assets/151824430/0a68aa6e-3fc9-403c-880b-cb41778c6c65)
+![Web capture_28-11-2023_234727_127 0 0 1](https://github.com/Belikeawuley/1133744_DCIT205/assets/151824430/2b69016e-0839-47c8-b7e3-dc58ff0da3f1)
 # 1133744_DCIT205
 GIDEON TETTEH AWULEY
 11337494
